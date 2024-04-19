@@ -6,4 +6,5 @@
 - Email: anthonyvolatile@outlook.com
 - LinkedIn: Anthony Volatile
 
+Looking for any collaberation or insite on buiulding applications and learning terminology, work flow, things to look for. 
 
